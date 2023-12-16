@@ -1,6 +1,10 @@
 Biography-အတ္ထုပ္ပတ္တိ☑️
 
-သက်ထက်ဇော် (တီဇစ်) Thet Htet Zaw (T Zip)
+![1701229663870](https://github.com/JazyJake/.com.mm/assets/141454911/c56b1936-a704-444f-9916-f710cbfe3eb2)
+
+Thet Htet Zaw (T Zip)
+
+သက်ထက်ဇော် (တီဇစ်) 
 
 မာတိကာ
 
